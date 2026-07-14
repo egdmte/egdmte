@@ -1,6 +1,4 @@
-### Just a guy who loves everything.
-Kind of. It's not like I love everything good AND bad.
+### Your (not) favorite tech nerd
+Owner of Marmarotay, Avar Technologies and AvaROBOT
 
-I'm interested in, well, anything.
-That's still something unanswered. It's really dependent. I'm not a vibe coder though.
-Creator of Avtgelt Technologies, Marmarotay and Netilyo.
+I want to be an Emergency Phycisian, so I do these for fun.
